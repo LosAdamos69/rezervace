@@ -1,0 +1,1 @@
+zvedá mi to kortizol
